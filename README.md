@@ -2,7 +2,7 @@
 - 👀 I am always watching
 - 🌱 I love learning new stuff about teach in general
   
-- 📫 for contacts here's my discord username
+- 📫 for contact here's my discord username
 - kuzmo9088
 
 <!---
